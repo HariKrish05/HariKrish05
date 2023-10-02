@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @HariKrish05
+- 👋 Hi, I’m HK❤ @HariKrish05 
 - 👀 I’m interested in Game Designing
 - 🌱 I’m currently learning Front End Designing
 - 💞️ I’m looking to collaborate on Meta
