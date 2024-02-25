@@ -1,7 +1,7 @@
 - 👋 Hi, I’m HK❤ @HariKrish05 
 - 👀 I’m interested in Game Designing
-- 🌱 I’m currently learning Front End Designing
-- 💞️ I’m looking to collaborate on Meta
+- 🌱 I’m currently learning blender
+- 💞️ I’m looking to collaborate on ubisoft
 - 📫 How to reach me hkthelonedragon5@gmail.com
 
 <!---
